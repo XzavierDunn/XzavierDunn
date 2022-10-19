@@ -1,3 +1,3 @@
-### XD - Application Developer
+### XD - 
 # What's poppin 🚀
 
